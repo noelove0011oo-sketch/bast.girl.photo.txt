@@ -1,0 +1,1 @@
+# bast.girl.photo.txt
